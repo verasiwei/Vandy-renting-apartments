@@ -20,16 +20,7 @@
 
 6. Americana apartment旁边的高级公寓
 因为太贵住不起所以我索性也都没参观，但是一分钱一分货或者大家伙一块住客厅住人啥的还是可以的。
-
-1）20 & grand apartment
-
-2) morris apartment
-
-3) aertson midtown apartment
-
-4) artisan on 18th(这家每月要收停车费)
-
-5）the adelicia
+20 & grand apartment; morris apartment; aertson midtown apartment; artisan on 18th(这家每月要收停车费); the adelicia
 
 7. Note16 apartment
 这也是个有门禁有电梯的高档公寓，坐落在16街上，前一阵出过安全事故google可以搜到。
